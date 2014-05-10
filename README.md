@@ -8,3 +8,4 @@ The franchise celebrated its tenth anniversary in 2006.[4] As of 28 May 2010, cu
 
 The official logo of Pokémon for its international release; "Pokémon" is short for the original Japanese title of "Pocket Monsters".
 Pokémon (ポケモン Pokemon?, /ˈpoʊkeɪmɒn/ poh-kay-mon[1][2]) is a media franchise published and owned by Japanese video 
+<img src="https://fbcdn-sphotos-b-a.akamaihd.net/hphotos-ak-ash4/t1.0-9/10329296_863614440332322_6155092039053541588_n.jpg" alt="HowToPlay Screen"/> </li>
